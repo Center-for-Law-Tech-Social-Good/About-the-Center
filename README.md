@@ -24,4 +24,15 @@ The Center is committed to furthering their mission through rigorous research th
 [Hayley Anna](https://www.linkedin.com/in/hayley-anna/)
 
 
-[**LEARN MORE**](https://www.usfca.edu/law/school-life-careers/centers/center-law-tech-social-good)
+**Location**
+
+[University of San Francisco School of Law](https://www.usfca.edu/law)
+
+**Questions?**
+
+Contact us @ cltsg@usfca.edu
+
+
+
+[**LEARN MORE ABOUT THE CENTER**](https://www.usfca.edu/law/school-life-careers/centers/center-law-tech-social-good)
+
