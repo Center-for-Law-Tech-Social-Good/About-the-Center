@@ -15,5 +15,13 @@ The Center believes knowledge is the key to furthering equity and integrity in o
 **Research**
 The Center is committed to furthering their mission through rigorous research that explores the new horizons of emerging technologies, the law, and social good. The Center takes a multidisciplinary approach to research through their robust network of Affiliated Faculty and Scholars.
 
+**Meet the Team**
+
+[Michele Neitz](https://www.usfca.edu/law/faculty/michele-neitz)
+
+[Charles Belle](https://www.usfca.edu/law/faculty/charles-belle)
+
+[Hayley Anna](https://www.linkedin.com/in/hayley-anna/)
+
 
 [**LEARN MORE**](https://www.usfca.edu/law/school-life-careers/centers/center-law-tech-social-good)
